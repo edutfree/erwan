@@ -16,7 +16,7 @@
 
 ## 尔湾云加速器优惠码
 
-👏 年付7折优惠码，购买时请输入 [ss11](https://erwan.cc/auth/register?code=iYye7k)
+👏 年付7折优惠码，购买时请输入 [ss12](https://erwan.cc/auth/register?code=iYye7k)
 
 👉 套餐流量为一次性到账，期限内有效，不能叠加购买 ❗
 
