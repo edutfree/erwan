@@ -2,15 +2,13 @@
 
 最新地址1：[https://erwan.cc](https://erwan.cc/auth/register?code=iYye7k)
 
-最新地址2：[https://erwan43.pw](https://erwan43.pw/auth/register?code=iYye7k)
-
-> erwan尔湾云官网跑路了吗？暂时没有。不过机场总会有跑路风险，为尽可能减少损失，选购套餐可按月支付。
+最新地址2：[https://erwan6.net](https://erwan6.net/auth/register?code=iYye7k)
 
 ## 尔湾云加速器评测与最新官网地址
 
 尔湾云加速器怎么样？
 
-尔湾云加速器，是知名实力老牌机场旗下新开高端专线机场，低价，高端线路节点的魔法上网科学上网机场梯子工具加速器。
+尔湾云加速器，是知名实力老牌服务商旗下新开高端专线加速器，低价，高端线路节点的魔法上网科学上网梯子工具加速器。
 
 使用隧道中转优化线路与IPLC国际专线，使用 Shadowsocks 和 V2Ray 协议，多达条优质线路节点包括香港、台湾、美国、日本、韩国、法国等中国用户常用国家与地区。
 
@@ -35,4 +33,4 @@
 | 旗舰版    | 按月付  | 59.99 | 600 GB  | 8      |
 | 旗舰版Max | 按月付  | 99.99 | 1200 GB | 10     |
 
-[![erwan尔湾云机场套餐价格](erwan_20241130_175534.png)](https://xuv.cc/out/erwan)
+[![erwan尔湾云套餐价格](erwan_20241130_175534.png)](https://xuv.cc/out/erwan)
