@@ -2,17 +2,17 @@
 
 最新地址1：[https://erwan.cc](https://erwan.cc/auth/register?code=iYye7k)
 
-最新地址2：[https://erwan6.net](https://erwan6.net/auth/register?code=iYye7k)
+最新地址2：[https://errwan6.biz](https://errwan65878.biz/auth/register?code=iYye7k)
 
-最新地址3：[https://ew443.net](https://ew443.net/auth/register?code=iYye7k)
+最新地址3：[https://ewanwzz.net](https://ewanwzz.net/auth/register?code=iYye7k)
 
----
+## 尔湾云加速器优惠码
 
-**温馨提示：任何服务均有跑路风险，请自行注意防范！**
+👏 年付7折优惠码，购买时请输入 [ss12](https://errwan65878.biz/auth/register?code=iYye7k)
 
-**本页面仅分享网络信息，不做推荐，有问题请自行联系服务商处理！**
+👉 套餐流量为一次性到账，期限内有效，不能叠加购买 ❗
 
----
+👉 未到期时如需购买，请前往【我的钱包】页面【套餐记录】找到您当前套餐，点击操作【折算返还余额】，然后购买 ❗
 
 ## 尔湾云加速器评测与最新官网地址
 
@@ -21,14 +21,6 @@
 尔湾云加速器，是知名实力老牌服务商旗下新开高端专线加速器，套餐价格便宜，高端线路节点的魔法上网科学上网梯子工具加速器。
 
 使用隧道中转优化线路与IPLC国际专线，使用 Shadowsocks 和 V2Ray 协议，多达条优质线路节点包括香港、台湾、美国、日本、韩国、法国等中国用户常用国家与地区。
-
-## 尔湾云加速器优惠码
-
-👏 年付7折优惠码，购买时请输入 [ss12](https://erwan.cc/auth/register?code=iYye7k)
-
-👉 套餐流量为一次性到账，期限内有效，不能叠加购买 ❗
-
-👉 未到期时如需购买，请前往【我的钱包】页面【套餐记录】找到您当前套餐，点击操作【折算返还余额】，然后购买 ❗
 
 ## 尔湾云加速器优惠套餐
 
